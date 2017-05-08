@@ -1,8 +1,6 @@
 # List of my main skins with screenshots and downloads :))
 
-## RoSmurf:
-
-https://puu.sh/vJEXM/efe229aae0.osk
+## [RoSmurf](https://puu.sh/vJEXM/efe229aae0.osk)
 
 ## Chitanda + cinia hits:
 
