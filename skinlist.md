@@ -1,5 +1,5 @@
 # skins
-full list of my skins with downloads :))
+List of my main skins with screenshots and downloads :))
 
 RoSmurf:                https://puu.sh/vJEXM/efe229aae0.osk
 
