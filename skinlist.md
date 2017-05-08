@@ -2,9 +2,11 @@
 
 ## [RoSmurf](https://puu.sh/vJEXM/efe229aae0.osk)
 
-![Alt text](https://osu.ppy.sh/ss/8036500)
+![](https://osu.ppy.sh/ss/8036500)
 
 ## [Chitanda + cinia hits](https://puu.sh/vJEY7/485a409acc.osk)
+
+!(https://osu.ppy.sh/ss/8036519)
 
 ## [Boom](https://puu.sh/vJEXd/4abb1bf1a1.osk)
 
