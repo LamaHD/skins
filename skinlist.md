@@ -2,7 +2,7 @@
 
 ## [RoSmurf](https://puu.sh/vJEXM/efe229aae0.osk)
 
-https://osu.ppy.sh/ss/8036500
+![Alt text](https://osu.ppy.sh/ss/8036500)
 
 ## [Chitanda + cinia hits](https://puu.sh/vJEY7/485a409acc.osk)
 
