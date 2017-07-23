@@ -2,6 +2,10 @@
 
 Here is a list of skins I use very often. Chances are I'm using one on stream or in game right now! If not, feel free to ask me directly, you'll know straight away what skin I'm using!
 
+# [personal mixed skin?](https://puu.sh/wRbH3/c9a7147e31.osk)
+
+![](https://osu.ppy.sh/ss/8666159)
+
 # [RoSmurf](https://puu.sh/vJEXM/efe229aae0.osk)
 
 ![](https://osu.ppy.sh/ss/8036500)
