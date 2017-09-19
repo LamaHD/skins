@@ -1,6 +1,6 @@
 # VegieBunny skins <3
 
-Here is a list of skins I use very often. Chances are I'm using one on stream or in game right now! If not, feel free to ask me directly, you'll know straight away what skin I'm using!
+Here are the skins I use most of the time on  stream! If this list is missing the one I am currently using, tell me and I'll update it as son as I can :))
 
 
 # [Aiden's 1.1](https://puu.sh/xDKzV/8eb3fa8bee.osk)
