@@ -11,7 +11,7 @@ Here is a list of skins I use very often. Chances are I'm using one on stream or
 
 ![](https://osu.ppy.sh/ss/9052685)
 
-# [personal mixed skin?](https://puu.sh/wRbH3/c9a7147e31.osk)
+# [mixed skin 1](https://puu.sh/wRbH3/c9a7147e31.osk)
 
 ![](https://osu.ppy.sh/ss/8666159)
 
